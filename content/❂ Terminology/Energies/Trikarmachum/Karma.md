@@ -1,0 +1,1 @@
+Born from [[𖨆 Ultidea]]’s act of reversing the Null with starlight, karma is the fundamental energy of creation. It is the raw, primal force that infuses the cosmos with potential, acting as the foundational power from which everything emerges.

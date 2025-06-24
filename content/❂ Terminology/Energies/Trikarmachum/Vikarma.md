@@ -1,0 +1,1 @@
+In contrast, vikarma is the destructive or decaying facet of karma. It embodies the energy of disintegration, decay, and entropy—working against creation and gradually eroding order. While dharma builds and preserves, vikarma unravels and diminishes.

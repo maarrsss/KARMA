@@ -1,0 +1,1 @@
+This section focuses on names, terms, abilities, spells, sigils, and various other things in the Karmic World.

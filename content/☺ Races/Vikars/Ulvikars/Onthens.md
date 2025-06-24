@@ -1,0 +1,1 @@
+Onthens is the fifth Ulvikar created by Ultidea at the Genesis of Creation. He oversees the Fifth Circle of the Hellespointe, as well as being the Chief Commander of Armies.

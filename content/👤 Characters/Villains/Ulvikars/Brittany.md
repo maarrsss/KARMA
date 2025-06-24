@@ -1,0 +1,1 @@
+Brittany is the third Ulvikar created by Ultidea. She is the Queen of the Hellespointe, Mother to All Ubis, and the Governor of the Seventh Circle of the Hellespointe.

@@ -1,0 +1,1 @@
+Buddakai is the Fourth Ulvikar created by Ultidea at the Genesis of Creation. He serves as the Fourth Circle of the Hellespointe.

@@ -1,0 +1,1 @@
+Emile is the eight Ulvikar created by Ultidea at the Dawn of Creation. She governs the First Circle of the Hellespointe.

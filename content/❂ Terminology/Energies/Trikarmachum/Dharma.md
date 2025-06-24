@@ -1,0 +1,1 @@
+Dharma is the constructive aspect of karma. It channels this raw energy into building, growth, and forward motion. Representing the creative and life-affirming force, dharma aligns beings with the natural order, nurturing the formation and sustenance of life.

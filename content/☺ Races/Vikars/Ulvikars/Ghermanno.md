@@ -1,0 +1,1 @@
+Ghermanno is the seventh Ulvikar created by Ultidea at the Dawn of Creation. While she governs the Third Circle of the Hellespointe, she does not reside in the Hellespointe, instead choosing to live in the Shahshan Emirate as the Grand Treasurer.

@@ -1,0 +1,1 @@
+The Heavenspointe is the realm where souls of more dharma are sent to after death. It was created by [[𖨆 Ultidea]] at the Dawn of Creation and managed by the Sattvas.

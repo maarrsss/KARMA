@@ -1,0 +1,6 @@
+/* @import must always be at the top of your publish.css file */
+@import url('https://fonts.google.com/specimen/Lora');
+
+body {
+  --font-text-theme: 'Lora';
+}

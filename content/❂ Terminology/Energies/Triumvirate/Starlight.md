@@ -1,0 +1,3 @@
+Starlight is the ultimate power of potentiality, the primordial force before all things. It is neither construction nor destruction, but the limitless ability to manifest either. From it, karmic energy, mana, and vana were born, and through it, Samsaara was shaped. 
+
+Only a select few being possess this power, and this power was largely how beings like [[𖨆 Hyperus]] and [[𖨆 Hyperon]] were able to establish empires of unimaginable scales.

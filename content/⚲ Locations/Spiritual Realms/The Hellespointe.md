@@ -1,0 +1,1 @@
+The Hellespointe is the realm where vikarmic souls are sent to after death. It was created by [[𖨆 Ultidea]] at the Dawn of Creation and managed by the Vikars. 
